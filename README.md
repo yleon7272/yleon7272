@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @yleon7272
+- 👀 I’m interested in Cybersecurity
+- 🌱 I’m currently learning Coding and try to learn something about Cyber security
+- ⚡ Fun fact: ...
